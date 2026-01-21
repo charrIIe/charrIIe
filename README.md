@@ -17,4 +17,4 @@
 
 <p align="center" dir="auto">
 <img src="https://files.catbox.moe/jg4xjf.png"  "></p>
-@vysters big fatie
+@vysters biggest fatter
