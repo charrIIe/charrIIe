@@ -11,7 +11,7 @@
 ㅤ
 
 <p align="center"> ricky / tony </p>
-<p align="center">  ㅤ <a href="https://rentry.co/thefrights">I need ⠀nobody</a>  ⠀  <a href="https://strangerthings.atabook.org/"> but ⠀you  ⠀ in ⠀  my ⠀mind ⠀</a>   ㅤ</p>
+<p align="center">  ㅤ <a href="https://rentry.co/thefrights">rich people ⠀shit</a>  ⠀  <a href="https://strangerthings.atabook.org/">trillion  bucks  would  be  the  limit  on  my  Visa  ⠀</a>   ㅤ</p>
 
 ㅤ
 
